@@ -6,3 +6,5 @@
   * [youtube](https://www.youtube.com/playlist?list=PLmBXNYEjKJAW8RKvrP2xYFQAR7qRItfuk)
   
 * 链接到我
+  * [bilibili](https://space.bilibili.com/323723426)
+  * [youtube](https://www.youtube.com/channel/UCK2wj1spCQ6AfJ4PpAsDMpw)
